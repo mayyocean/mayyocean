@@ -7,3 +7,5 @@ I am easy to get along with so don't be afraid to be friends with me.
 - I like chocolate
 - Rebzyyx fns
 - 18yo
+
+![Image](https://github.com/user-attachments/assets/185a9abf-fd4a-43d5-948d-6fdce42ba920)

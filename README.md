@@ -5,7 +5,7 @@ Hii... My name is May,
 
 I'm easy to get along with so don't be afraid to be friends with me.
 - I like chocolate
-- Music? all genre (Rebzyyx fns)
+- Music? all genre
 - 18yo
 - I really hate spiders (n i don't like freaks either)
 
